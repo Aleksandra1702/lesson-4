@@ -1,3 +1,3 @@
 # lesson-4
-страдание  4
+сние  4
 jhdfgvkdhv
